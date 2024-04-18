@@ -12,7 +12,7 @@
 - 📫 How to reach us *khanhnguyen260802@gmail.com*
 - 📫 How to reach us *chientran14580@gmail.com*
 - 📫 How to reach us *letandungnq2802@gmail.com*
-- 
+
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
